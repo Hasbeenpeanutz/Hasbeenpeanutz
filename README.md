@@ -19,4 +19,4 @@
 ---
 
 ## 🌐 Connect with me
-- Instagram: [yourwebsite.com](https://www.instagram.com/hasbeenpeanutz/)  
+- Instagram: [hasbeenpeanutz](https://www.instagram.com/hasbeenpeanutz/)  
